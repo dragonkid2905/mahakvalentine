@@ -1,5 +1,0 @@
-![IMG-20241020-WA0017](https://github.com/user-attachments/assets/60243dbb-4102-4c03-8bf8-aa8a20e34757)
-![IMG-20241020-WA0020](https://github.com/user-attachments/assets/f56d38e9-d358-4a27-83a8-acc7dc1b3fe1)
-![IMG-20240805-WA0070](https://github.com/user-attachments/assets/cc534cb8-46d3-49b7-9ee1-724cd3ddc9f0)
-![IMG-20240827-WA0067](https://github.com/user-attachments/assets/6009329e-15af-4a03-bded-f74de2552571)
-![Snapchat-1118582835](https://github.com/user-attachments/assets/a16c281f-94ef-4278-8938-ac6816ff0ca2)
